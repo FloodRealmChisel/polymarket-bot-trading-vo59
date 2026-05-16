@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with advanced Polymarket Utility | take-profit-orders + event-driven-trading, the #1 utility. Includes take-profit-orders and event-driven-trading
 
 
 
